@@ -3,7 +3,7 @@
 
 主站点：[https://chatgpt-plus.top](https://chatgpt-plus.top/list)（江苏福建地区打不开，需要魔法）
 
-店铺地址：[https://buy.chatgpt-plus.top/](https://buy.chatgpt-plus.top/)
+店铺地址：https://717ka.com/shop/olrw827s1gys0g0lldyug
 
 ![image-20240524100217696](https://img-blog.csdnimg.cn/img_convert/5e989f372201b94f154f625c524e5240.png)
 
